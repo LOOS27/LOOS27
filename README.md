@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @LOOS27
-- 👀 I’m interested la comunicacion, psicologia, actividad fisica, programacion
+- 👀 I’m interested la comunicación, psicología, actividad física, programación
 - 🌱 I’m currently learning ...programacion
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
